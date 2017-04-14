@@ -17,3 +17,4 @@ Un horloge marque **midi, 35 Mars 2134**.
 ** je suis la pour troller 
 ###HAHAHAHAHA 
 
+>Interlude. L'histoire est en pause.
