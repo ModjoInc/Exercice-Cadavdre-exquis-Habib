@@ -13,3 +13,7 @@ Pour attérir dans un nouveau monde :
 Au traversser **la porte**, Dagobert se voit au millieu d'un enorme ville où les imeubles sont gigantesques, les rues assez longues pour être perdues de vu.
 Un horloge marque **midi, 35 Mars 2134**. 
 
+#c la deglingue assurée 
+** je suis la pour troller 
+###HAHAHAHAHA 
+
