@@ -8,4 +8,9 @@ L'ombre de Dagobert, forestier de Sylvania, se découpa lorsqu'il traversa l'ét
 
 Il quitta alors sa forêt natale, sa femme et ses trois filles,
 
-Pour attérir dans un nouveau monde : 
+Pour attérir dans un nouveau monde :
+
+
+#c la deglingue assurée 
+** je suis la pour troller 
+###HAHAHAHAHA 
