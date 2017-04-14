@@ -9,3 +9,7 @@ L'ombre de Dagobert, forestier de Sylvania, se découpa lorsqu'il traversa l'ét
 Il quitta alors sa forêt natale, sa femme et ses trois filles,
 
 Pour attérir dans un nouveau monde : 
+
+Au traversser **la porte**, Dagobert se voit au millieu d'un enorme ville où les imeubles sont gigantesques, les rues assez longues pour être perdues de vu.
+Un horloge marque **midi, 35 Mars 2134**. 
+
